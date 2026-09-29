@@ -1,0 +1,2 @@
+# premium-nunome-001-nunome-textile-pattern-metal-i
+Tired of losing track of intricate metal inlay patterns and textile design iterations across scattered notes, sketches, and folders? This Notion template transforms your chaotic craft workflow into a seamless, organized workspace.  The Nunome Textile-Pattern Metal Inlay Design Planner solves the pain of managing complex design projects by centraliz
